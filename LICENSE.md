@@ -1,4 +1,4 @@
-
+new Script for driving empire is the best driving empire Script, featuring infinite resources and teleport. Safe and powerful for all your needs.
 
 
 
